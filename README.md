@@ -1,4 +1,4 @@
-![425246244-0ed5594a-672e-4c54-a403-ead9b003a231](https://github.com/user-attachments/assets/22ccda7b-fa1e-42aa-8cef-1a66005b5d76)
+![9aa41c11645cfa4a43024528506f1ef2](https://github.com/user-attachments/assets/e2b3b25a-ef00-4948-a837-a14735bd9f1c)
 ,                                     
 ˚ ༘ "My nightshade,,<3 ೀ⋆｡˚                                            
                                                      ────୨ৎ────
