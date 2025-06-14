@@ -1,4 +1,3 @@
-![9aa41c11645cfa4a43024528506f1ef2](https://github.com/user-attachments/assets/e2b3b25a-ef00-4948-a837-a14735bd9f1c)
-,                                     
+![IMG_1204](https://github.com/user-attachments/assets/db7d6dbf-6836-4a73-a189-ae18af5b5afe)                                    
 ˚ ༘ "My nightshade,,<3 ೀ⋆｡˚                                            
                                                      ────୨ৎ────
