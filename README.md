@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/29b70298-8c76-422e-895a-4af0611ba477)
+<img width="2400" height="656" alt="image" src="https://github.com/user-attachments/assets/7186e0ab-8292-4a8c-affc-8e363207ff97" />
+
                                 
-˚ ༘ "The fault lies with you, Ishmael. ೀ⋆｡˚                                            
+˚ ༘ "With solemn grace, I accept this deserved punishment." . ೀ⋆｡˚                                            
                                                      ────🐟────
